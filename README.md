@@ -12,7 +12,7 @@
 - 📫 How to reach me **avrrai3108@gmail.com**
 
 - ⚡ Fun fact about me **I Am Stronger Than You XD** 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />"  />
+<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
