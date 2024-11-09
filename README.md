@@ -12,7 +12,7 @@
 - 📫 How to reach me **avrrai3108@gmail.com**
 
 - ⚡ Fun fact about me **I Am Stronger Than You XD** 
-<img align="right" height="150" src="https://tenor.com/view/nah-id-win-gojo-satoru-satoru-gojo-goat-gif-4543392711550813401"  />
+<img align="right" height="150" src="https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExZWRmeWNqZzZsZHM2cWNzN3dtZWQ0a3Y3a3RzMDczMDZkYTA2cXZvOCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/kENFKeeVspLTf6fxIB/giphy.gif"  />
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
