@@ -1,3 +1,5 @@
+<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+
 <h1 align="center">Hi 👋, I'm Aditya Vardhan Rai</h1>
 <h3 align="center">A passionate and basic wannabe coder..</h3>
 
