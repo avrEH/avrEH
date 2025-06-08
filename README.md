@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on [Paperless World (KINDA DIGILOCKER)](https://github.com/avrEH/Paperless-World)
 
-- 🌱 I’m currently learning **Basics of AI , Java DSA and WEB DEV(react)**
+- 🌱 I’m currently learning **Basics of AI(application engineering) , Java DSA and WEB DEV(react)**
 
 - 💬 Ask me about **fitness,content creation and data structure logicss**
 
